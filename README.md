@@ -1,1 +1,1 @@
-# comapanies
+# companies
